@@ -9,7 +9,8 @@ https://drive.google.com/file/d/1P2Fv1wYZSaLuwoyv0bMP-zaMaGODkoPI/view?usp=shari
 
 
 作業2：
-![image](https://github.com/user-attachments/assets/03c26b92-e276-479b-ada6-517c8690895f)
+https://drive.google.com/file/d/1MWSWmqTweTgnilRk6nhL6ybp5hvP02pa/view?usp=sharing
 
-作業3：![Uploading image.png…]()
+作業3：
+https://drive.google.com/file/d/1PsQQZbYjvS6Hvra6uXXFwFUyAcmO8ak9/view?usp=sharing
 
