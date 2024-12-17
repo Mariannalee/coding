@@ -3,7 +3,8 @@
 unity原始碼在這~：https://github.com/Mariannalee/Myproject3
 
 作業1：
-https://drive.google.com/drive/recent?dmr=1&ec=wgc-drive-globalnav-goto
+
+https://drive.google.com/file/d/1P2Fv1wYZSaLuwoyv0bMP-zaMaGODkoPI/view?usp=sharing
 
 
 
