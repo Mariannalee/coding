@@ -3,7 +3,8 @@
 unity原始碼在這~：https://github.com/Mariannalee/Myproject3
 
 作業1：
-(https://github.com/user-attachments/assets/481a33dd-49ce-4f04-93da-d7482f516779)
+![Uploading 螢幕擷取畫面 2024-12-17 220955.png…]()
+
 
 
 作業2：
