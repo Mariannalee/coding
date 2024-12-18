@@ -15,5 +15,6 @@ https://drive.google.com/file/d/1MWSWmqTweTgnilRk6nhL6ybp5hvP02pa/view?usp=shari
 https://drive.google.com/file/d/1PsQQZbYjvS6Hvra6uXXFwFUyAcmO8ak9/view?usp=sharing
 
 期末專題：
-https://github.com/Mariannalee/unityhomework
+原始碼：https://github.com/Mariannalee/unityhomework
+影片：https://www.youtube.com/watch?v=tFJss5DYR1Q
 
